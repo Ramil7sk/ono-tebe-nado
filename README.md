@@ -1,1 +1,1 @@
-https://github.com/Ramil7sk/ono-tebe-nado
+https://github.com/Ramil7sk/ono-tebe-nado-fd
