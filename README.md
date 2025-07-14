@@ -1,1 +1,0 @@
-https://github.com/Ramil7sk/ono-tebe-nado
